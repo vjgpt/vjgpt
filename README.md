@@ -17,6 +17,5 @@ Here are some ideas to get you started:
 - 📚 Medium Blogs: https://medium.com/@vjgupta57
 - 📫 How to reach me: vjgupta57@gmail.com
 - 😄 Pronouns: he/him/his
-- [👔 Resume ](https://vjgupta57.notion.site/Vijay-Kumar-Gupta-a190c86d57d14d9382b03105e2bec0e3)
 
 ![counter](https://engpyk20vk6t3kt.m.pipedream.net)
