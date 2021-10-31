@@ -16,6 +16,6 @@ Here are some ideas to get you started:
 
 - 📚 Medium Blogs: https://medium.com/@vjgupta57
 - 📫 How to reach me: vjgupta57@gmail.com
-- 😄 Pronouns: he/him/his
+- 😄 Pronouns: he/him
 
 ![counter](https://engpyk20vk6t3kt.m.pipedream.net)
